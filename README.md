@@ -1,2 +1,2 @@
 # Pacome-Le-Rouge
-XR Designer
+I'm a XR Designer based in Brussels
